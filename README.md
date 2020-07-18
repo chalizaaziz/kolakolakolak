@@ -21,7 +21,7 @@ Dear Alma
   dont forget 2 wash ur hands w/ soap or hand sanitizer that was included in the bag 🧼
   dont forget to pray and read basmallah before grab a bitee ! (sekadar mengingatkan 🙏🏻)
   
-  ud gitu aja, monmaap niii 3 bulan bru jadi 🥺
+  ud gitu aja, here i present you, **kolak ter ena seduniya fana!** **#nodebat** btw monmaap niii 3 bulan bru jadi 🥺
 
 --------------------------------------------------------------------------------------------------------
 
