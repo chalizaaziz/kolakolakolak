@@ -31,6 +31,7 @@ Dear Alma
   4. a hand sanitizer.
   5. a printed documentation.
  
+
  
 - Serving procedure : (#1730)
   
@@ -56,7 +57,9 @@ Dear Alma
   To get help with kolaknye, please hit me up using the link wa.me/+62811135857 
   or you can use instagram.com/chalizaaziz.
   
-  
+--------------------------------------------------------------------------------------------------------
+--------------------------------------------------------------------------------------------------------
+
   
   Gapake Copyright © 2020 izaaa a nya tiga
   Documentation built with leptop, keyboard sm tangan 
