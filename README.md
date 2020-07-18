@@ -1,8 +1,8 @@
 # kolakolakolak
 Version 1.0.4 (2020-07-18)
 
-greeting card that was coming with kolak, 
-but coming in the form of github release notes 🤡
+a greeting card that was coming with kolak, 
+but coming in the form of GitHub release notes 🤡
 u know, computer science pride and all (ANJAY)
 
 --------------------------------------------------------------------------------------------------------
@@ -11,15 +11,15 @@ u know, computer science pride and all (ANJAY)
 
 Dear Alma
 
-  This notes is coming with kolak that was delivered earlier in the form of barcode
-  that was printed in a card inside with hope of deliver a bold, new and exciting experience 🤩
+  This note is coming with kolak that was delivered earlier in the form of barcode
+  that was printed in a card inside with hope of providing a bold, new and exciting experience 🤩
   padahal yang dikirim cuman kolak HAHAHAHAH 🥺🥺🥺🥺🥺🥺
 
   it took about 4 trial of experiments and 3 months of work 😔👉🏻👈🏻, and 40km of driving
   untill kolaknya finally jadi and delivered to you.
 
   dont forget 2 wash ur hands w/ soap or hand sanitizer that was included in the bag 🧼
-  dont forget to pray and read basmallah before grab a bitee ! (sekadar mengingatkan 🙏🏻)
+  dont forget to pray and read basmallah before grabbing a bitee ! (sekadar mengingatkan 🙏🏻)
   
   ud gitu aja, here i present you, **kolak ter ena seduniya fana!** **#nodebat** btw monmaap niii 3 bulan bru jadi 🥺
 
@@ -32,7 +32,7 @@ Dear Alma
   2. kokumi (or its equivalent). 🥤
   3. an ice cream (kalo ga leleh). 🍦
   4. a hand sanitizer.
-  5. a printed documentation. 📜
+  5. printed documentation. 📜
  
 
  
@@ -43,7 +43,7 @@ Dear Alma
     2. clean your hands using soap and water or hand sanitizer 🧼
        (read more on NHS website) https://www.nhs.uk/live-well/healthy-body/best-way-to-wash-your-hands/)
     3. basmallah first before eating (sekadar mengingatkan 🙏🏻)
-    4. Eat it directly from the packaging itself using spoon. 🥄
+    4. Eat it directly from the packaging itself using a spoon. 🥄
     5. kenyang 🥳
     
   # option 2
@@ -52,7 +52,7 @@ Dear Alma
     3. clean your hands using soap and water or hand sanitizer 🧼
        (read more on NHS website) https://www.nhs.uk/live-well/healthy-body/best-way-to-wash-your-hands/)
     4. basmallah first before eating. (sekadar mengingatkan 🙏🏻)
-    5. Eat it using spoon. 🥄
+    5. Eat it using a spoon. 🥄
     6. kenyang 🥳
 
 
