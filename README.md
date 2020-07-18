@@ -30,9 +30,8 @@ Dear Alma
 
   1. sweet compote with bananas, sweet potatoes, stewed in coconut milk and brown sugar.
   2. kokumi (or its equivalent). 🥤
-  3. an ice cream (kalo ga leleh). 🍦
-  4. a hand sanitizer.
-  5. printed documentation. 📜
+  3. an ice cream (tempo gelato replacement lol, dan kalo ga leleh). 🍦
+  4. printed documentation. 📜
  
 
  
