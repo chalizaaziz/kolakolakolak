@@ -62,4 +62,4 @@ Dear Alma
 
   
   Gapake Copyright © 2020 izaaa a nya tiga
-  Documentation built with leptop, keyboard sm tangan 
+  Documentation built with leptop, keyboard sm tangan ☺️
