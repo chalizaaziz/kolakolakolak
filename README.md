@@ -3,7 +3,7 @@ Version 1.0.4 (2020-07-18)
 
 greeting card that was coming with kolak, 
 but coming in the form of github release notes 🤡
-u know, computer science pride here and all (ANJAY)
+u know, computer science pride and all (ANJAY)
 
 --------------------------------------------------------------------------------------------------------
 
