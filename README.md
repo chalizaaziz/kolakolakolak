@@ -15,7 +15,7 @@ Dear Alma
   that was printed in a card inside with hope of deliver a bold, new and exciting experience 🤩
   padahal yang dikirim cuman kolak HAHAHAHAH 🥺🥺🥺🥺🥺🥺
 
-  it took about 4 trial of experience and 3 months of work 😔👉🏻👈🏻, and 40km of driving
+  it took about 4 trial of experiments and 3 months of work 😔👉🏻👈🏻, and 40km of driving
   untill kolaknya finally jadi and delivered to you.
 
   dont forget 2 wash ur hands w/ soap or hand sanitizer that was included in the bag 🧼
