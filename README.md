@@ -7,6 +7,7 @@ u know, computer science pride and all (ANJAY)
 
 --------------------------------------------------------------------------------------------------------
 
+- readmeee
 
 Dear Alma
 
@@ -19,6 +20,8 @@ Dear Alma
 
   dont forget 2 wash ur hands w/ soap or hand sanitizer that was included in the bag 🧼
   dont forget to pray and read basmallah before grab a bitee ! (sekadar mengingatkan 🙏🏻)
+  
+  ud gitu aja, monmaap niii 3 bulan bru jadi 🥺
 
 --------------------------------------------------------------------------------------------------------
 
